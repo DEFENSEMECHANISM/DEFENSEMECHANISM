@@ -3,6 +3,7 @@
  <p align="center">
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff6b97&bar_color_cover=false"> <p align="center"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <img src="https://komarev.com/ghpvc/?username=DEFENSEMECHANISM&style=plastic&label=♡+climbers&color=fda8bf&abbreviated=true&base=2900">
+<p align="center"> $\color{#FFB1CF}{\textsf{all my anchored + aa skins are linked to!!}}$
    <div align="left">
       <br>
    <div align="center">
