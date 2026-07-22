@@ -32,6 +32,6 @@
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![gif](https://images-ext-1.discordapp.net/external/3EtjBEd0I0uxrH_XInNCeb-H2GEtjPe7iB4XvGeD7oU/https/file.garden/Zj8MKPoh-G9Y8EJE/pngsgifs/gifs/IMG_7956.gif?width=160&height=65)
 
-‎$\color{#fdc3d1}{\textsf{one day i'll make a strawpage dedicated to my art ok?}}$
+‎one day i'll make a strawpage dedicated to my art ok?
 
 
