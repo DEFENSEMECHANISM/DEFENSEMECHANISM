@@ -31,9 +31,7 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  $\color{#ffb1cf}{\textsf{+ following and all my moots who dont have pt !}}$
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![gif](https://images-ext-1.discordapp.net/external/3EtjBEd0I0uxrH_XInNCeb-H2GEtjPe7iB4XvGeD7oU/https/file.garden/Zj8MKPoh-G9Y8EJE/pngsgifs/gifs/IMG_7956.gif?width=160&height=65)
-  
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img alt="Static Badge" src="https://img.shields.io/badge/secret%20admirer-u?style=flat&label=sparks'&labelColor=%23fda8bf&color=%23ff5c89"> <img alt="Static Badge" src="https://img.shields.io/badge/soulvester-u?style=flat&label=ponytown's&labelColor=%23ffdbdb&color=%23fdc3d1"> </p>
 
-one day i'll make a strawpage dedicated to my art ok?
+‎$\color{#fdc3d1}{\textsf{one day i'll make a strawpage dedicated to my art ok?}}$
 
 
