@@ -34,4 +34,6 @@
   
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img alt="Static Badge" src="https://img.shields.io/badge/secret%20admirer-u?style=flat&label=sparks'&labelColor=%23fda8bf&color=%23ff5c89"> <img alt="Static Badge" src="https://img.shields.io/badge/soulvester-u?style=flat&label=ponytown's&labelColor=%23ffdbdb&color=%23fdc3d1"> </p>
 
+one day i'll make a strawpage dedicated to my art ok?
+
 
